@@ -12,3 +12,4 @@ Donate Dogecoin : DPaMVnPhrUJTgg2N2kE3ysEd1kT5JJaFtS
 Donate Tron : TDtyu9osVwyMe1xBm7TycBU3qAseGVxrUb
 Donate Shiba Inu : 0xE535c22EFB03AfEA1Ca2A064E1357673D5116ccd
 Donate Paypal : Paypal Username : @ParhamTorabiTR
+YouTube : https://www.youtube.com/channel/UCwv4J_p69A0jaDB9zotZdwA
